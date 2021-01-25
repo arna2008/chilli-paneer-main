@@ -1,0 +1,4 @@
+Take All Purpose Flour, Corn Flour & mix them & wrap the Cottage Cheese Cubes with it. Put some Kashmiri Red Chili Powder & Water mixture, some Salt & wrap the Cottage Cheese Cubes properly & fry them.
+In a pan, put Oil, Ginger, Garlic, Green Chili, Onion, Capsicum, Salt, Black Pepper Powder, Soya Sauce, Vinegar, Chili Sauce, Kashmiri Red Chili Powder & Water paste, Tomato Ketchup & saute them. Take out some Veggies for Chilli Paneer Gravy then put some Corn Flour & Water Mixture in it & put fried Cottage Cheese Cubes. Mix them & garnish the Dry Chilli Paneer with Spring Onion.
+In a pan, put the remaining Veggies, Salt, fried Cottage Cheese Cubes, Corn Flour & Water Mixture, some Soya Sauce & cook it. Chilli Paneer Gravy will get ready.
+In this way, 2 Types of Restaurant Style Chilli Paneer will get ready at home.
